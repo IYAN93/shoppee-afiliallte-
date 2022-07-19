@@ -1,0 +1,2 @@
+# shoppee-afiliallte-
+Penjualan online
